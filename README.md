@@ -1,7 +1,7 @@
 - 👋🏻 Hey, I’m @aftxb
 - 🎈 I’m interested in data science
 - 🍀 I’m currently pursuing the same
-- 🤍 Reach me out :
+- 🤍 Reach out to me :
 - LinkedIn : www.linkedin.com/in/aftab-m-080bab23b
 - Instagram : www.instagram.com/xft.ab
 - Spotify : https://open.spotify.com/user/2fqcth2znhwwekxf0vz8zx8e8
