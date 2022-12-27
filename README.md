@@ -1,4 +1,5 @@
 - 👋🏻 Hey, I’m @aftxb
+- 💼 Administrator/Sales Analyst • R. K. Sales
 - 🎈 I’m interested in data science
 - 🍀 I’m currently pursuing the same
 - 🤍 Reach out to me :
